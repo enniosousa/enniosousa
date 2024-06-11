@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **PHP**
 
-- 📫 How to reach me **ennio@enniosousa.com.br**
+- 📫 How to reach me with DM in LinkedIn
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
